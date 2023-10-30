@@ -1,1 +1,1 @@
-# Sponsored-Project-for-Instagram
+# Sponsored-Post-for-Instagram
